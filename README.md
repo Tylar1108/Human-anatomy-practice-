@@ -9,3 +9,4 @@ so, gathered some references and got sketching
 in the end, to add a little more interest 
 to it, i painted the background as well
 hope you like it, artwork in repository 
+![Screenshot_2024-08-21-23-54-47-054_jp ne ibis ibispaintx app-edit](https://github.com/user-attachments/assets/fdbc23e9-89db-40c8-915a-b2958f9e4232)
